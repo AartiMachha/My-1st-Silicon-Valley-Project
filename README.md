@@ -1,2 +1,2 @@
-My 1st Silicon Valley Project ✨
+My 1st Silicon Valley Project 
 
